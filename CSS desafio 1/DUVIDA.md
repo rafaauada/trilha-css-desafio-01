@@ -1,0 +1,1 @@
+Não sei se dá pra responder mas meu celular é 19 98929 8408 pra mandar mensagem no whatsapp. Minha dúvida foi na hora de deixar o logo do banner do mesmo tamanho que vcs colocaram, já que o meu sempre tava maior mesmo com o código fonte igual ou parecido. Obrigadoo!
